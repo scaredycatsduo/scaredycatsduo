@@ -1,1 +1,1 @@
-![](https://tenor.com/view/wifies-squiddo-the-real-squiddo-mcyt-minecraft-gif-392483590578343342")
+<img src="https://media.tenor.com/6x3I3LOvMx8AAAAM/squiddo-lifesteal-smp.gif">
